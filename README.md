@@ -7,7 +7,7 @@
 - ⚡ Fun fact:
 - The good thing I have done while in college years:👇
 - I have co-united the people of 3 different sections finding joys doing 5km running programs in the Xidian University South Campus.
-- I have chatted and developed my English pronunciation skills.
+- I have chatted and developed my Oral English ability with so many foreigners I used to meet in my life.
 - I developed good friendships with Srilankan members from XDU IRODE Lab and now trying to start doing global bussiness with some foreign friends from Srilanka.
 
 <!---
