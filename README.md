@@ -7,9 +7,9 @@
 - ⚡ Fun fact:
 - The good thing I have done while in college and graduate years:👇
 - I have co-united the people of 3 different sections finding joys doing 5km running programs in the Xidian University South Campus.
-- I have chatted and developed my Oral English ability with so many foreigners I used to meet in my life.
+- I have chatted and learn the different cultural with so many foreigners I used to meet in my life, now that I could speak freely to nearly everybody in university of China.
 - I developed good friendships with Srilankan members from XDU IRODE Lab and now trying to start doing global bussiness with some foreign friends from Srilanka.
-
+So thankful for your visiting and really welcome you all to make the real comments on my code/ideas towards the techniques and the future of human kinds.
 <!---
 Super-Spa/Super-Spa is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
